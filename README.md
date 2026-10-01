@@ -1,1 +1,1 @@
-Programmering 1 faget 
+Alle ovinger Programmering 1 
